@@ -16,7 +16,7 @@
 
 月付9折优惠码：wandayun
 
-季付8.5折优惠码：quarter1
+季付8.5折优惠码：quarter11
 
 半年8折优惠码：half
 
